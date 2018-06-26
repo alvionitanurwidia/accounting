@@ -18,5 +18,6 @@ Dengan mengunci data keuangan di aplikasi keuangan koperasi, maka keamanannya le
 Dengan mendapatkan semua manfaat di atas, bukankah menggunakan aplikasi keuangan menjadi hal yang sangat dibutuhkan saat ini?
 
 Baca juga referensi lainnya:
-http://www.palalada.abatasa.co.id/post/detail/122720/memilih-program-dengan-modul-akuntansi-yang-terpercaya.html
-http://lo.batcave.net/2018/05/22/hal-yang-harus-diketahui-seputar-neraca-keuangan/
+[http://www.palalada.abatasa.co.id/post/detail/122720/memilih-program-dengan-modul-akuntansi-yang-terpercaya.html](http://www.palalada.abatasa.co.id/post/detail/122720/memilih-program-dengan-modul-akuntansi-yang-terpercaya.html)
+
+[http://lo.batcave.net/2018/05/22/hal-yang-harus-diketahui-seputar-neraca-keuangan/](http://lo.batcave.net/2018/05/22/hal-yang-harus-diketahui-seputar-neraca-keuangan/)
